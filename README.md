@@ -1,7 +1,7 @@
 
 Jaiden/Juggets/Jay. She/Her. aroace. 
 
-![image](https://64.media.tumblr.com/4cb7d676e5399ae7507e564407fe4876/a56565191e20dd54-b8/s640x960/71d036ea0bce14cb8d004efeb33cfa921d9ce475.pnj3277.jpg)
+![alt text]([](https://64.media.tumblr.com/4cb7d676e5399ae7507e564407fe4876/a56565191e20dd54-b8/s640x960/71d036ea0bce14cb8d004efeb33cfa921d9).
 
 qsmp. minecraft. roblox. ponytown.
 
