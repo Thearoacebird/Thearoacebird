@@ -6,7 +6,6 @@
 Jaiden/Juggets/Jay. She/Her. aroace. 
 
 ![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTUTDIV2dSN870X-62Th0sGNh49tiEOjD2dH3DTgMggcQ&s)
-![17310849817455696643804519270304](https://github.com/user-attachments/assets/fb2ee588-a305-490e-8e49-256700fb992b)
 
 [patreon](https://www.patreon.com/c/0_0zz/about) [strawpage](https://aroacebird.straw.page) Discord: rrxierxd
 
