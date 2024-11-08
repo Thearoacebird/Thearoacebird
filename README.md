@@ -1,8 +1,7 @@
 
 ![alt text](https://64.media.tumblr.com/80e12ae489865da6e21ac01092909a87/2126920db6b8306b-2f/s500x750/4a90d187cde1eb7a128ffc7c4b53b51ea1ca2cd5.pnj)
 
-![alt text](![17310849817455696643804519270304](https://github.com/user-attachments/assets/fb2ee588-a305-490e-8e49-256700fb992b)
-d5.pnj)
+(![17310849817455696643804519270304](https://github.com/user-attachments/assets/fb2ee588-a305-490e-8e49-256700fb992b)
 
 Jaiden/Juggets/Jay. She/Her. aroace. 
 
