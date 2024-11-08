@@ -3,8 +3,7 @@
 Jaiden/Juggets/Jay. She/Her. aroace.
 
 
-![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSW-aB0dAyJVT4hZA9J0vNJVwt2vMjjRSmmLRcpNzm27w&s) 
-
+![alt text](https://64.media.tumblr.com/80e12ae489865da6e21ac01092909a87/2126920db6b8306b-2f/s500x750/4a90d187cde1eb7a128ffc7c4b53b51ea1ca2cd5.pnj)
 
 ![image](https://64.media.tumblr.com/96d23bada4b7471b45bb898a729dc1d4/008259af8f9c76ed-17/s500x750/6e3f5dc3c244a9969485938c0c801367a83) 
 
