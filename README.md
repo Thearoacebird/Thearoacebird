@@ -3,7 +3,7 @@
 
 ![17310849817455696643804519270304](https://github.com/user-attachments/assets/fb2ee588-a305-490e-8e49-256700fb992b)
 
-𓏲ㅤㅤ۫ㅤㅤ ♪ ㅤ۫ㅤ ㅤㅤ𓈒ㅤׂㅤ★ㅤ ㅤ۫ㅤ Jaiden/Juggets/Jay. She/Her. aroace. 
+𓏲ㅤㅤ۫ㅤㅤ ♪ ㅤ۫Jaiden/Juggets/Jay.ㅤ ㅤShe/Her.ㅤ𓈒 aroaceㅤׂㅤ★ㅤ ㅤ۫ㅤ
 
 ![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTUTDIV2dSN870X-62Th0sGNh49tiEOjD2dH3DTgMggcQ&s)
 
