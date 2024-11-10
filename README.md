@@ -1,7 +1,4 @@
 
-![17310849817455696643804519270304](https://github.com/user-attachments/assets/fb2ee588-a305-490e-8e49-256700fb992b)
-
-
 ![alt text](https://64.media.tumblr.com/b3ee87f4c8ed6dfdc63743d4b661556e/9ccc9e50117fbf7a-c6/s500x750/c13faf7e47bcf2cec2effcc8f41f063263b7eccb.pnj)
 
 
@@ -12,6 +9,5 @@
 
 𓏲ㅤㅤ۫ㅤㅤ ♪ ㅤ۫[patreon](https://www.patreon.com/c/0_0zz/about).ㅤ ㅤ[strawpage](https://aroacebird.straw.page).ㅤ𓈒 Discord: rrxierxd .  ★ㅤ ㅤ۫ㅤ  
 
-![alt text](https://64.media.tumblr.com/b3ee87f4c8ed6dfdc63743d4b661556e/9ccc9e50117fbf7a-c6/s500x750/c13faf7e47bcf2cec2effcc8f41f063263b7eccb.pnj)
 
-![17310849817455696643804519270304](https://github.com/user-attachments/assets/fb2ee588-a305-490e-8e49-256700fb992b)
+![alt text](https://64.media.tumblr.com/b3ee87f4c8ed6dfdc63743d4b661556e/9ccc9e50117fbf7a-c6/s500x750/c13faf7e47bcf2cec2effcc8f41f063263b7eccb.pnj)
