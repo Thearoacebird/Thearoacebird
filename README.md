@@ -3,7 +3,7 @@
 
 
 
-★ㅤㅤ۫ㅤㅤ  ㅤ۫Jaidenㅤ ㅤShe/Her.ㅤ𓈒 aroaceㅤׂㅤㅤㅤ۫ㅤ
+★ㅤㅤ۫ㅤㅤ  ㅤ۫Jaiden.   ㅤ𓈒 aroaceㅤׂㅤㅤㅤ۫ㅤ
 
 ![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRK1OOTsErup2w-2LiB2Wgea78lB0VeOfAzf8zpKGLsng&s) ㅤ𓈒 .ㅤ۫ㅤ  
 
