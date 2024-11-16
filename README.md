@@ -1,5 +1,5 @@
 
-![alt text](https://64.media.tumblr.com/882d97cecdb3403cd739ccc6b013f3a1/e755ae029ad44057-7d/s640x960/e574d3b239af7873ba9a93b9d656e4c7c41155c9.pnj)
+![alt text](https://64.media.tumblr.com/6af48748ddcba8845d4e0d87a161cd1f/32aa94f4b735583f-e8/s400x600/db953724bb802e1beed4f82bfbd9d022f85ce07e.pnj)
 
 
 ★ㅤㅤ۫ㅤㅤ  ㅤ۫Jaiden.   ㅤ𓈒 aroaceㅤׂㅤㅤㅤ۫ㅤ
