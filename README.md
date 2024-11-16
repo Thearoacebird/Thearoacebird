@@ -5,7 +5,7 @@
 
 𓏲ㅤㅤ۫ㅤㅤ ♪ ㅤ۫Jaiden/Juggets.ㅤ ㅤShe/Her.ㅤ𓈒 aroaceㅤׂㅤ★ㅤ ㅤ۫ㅤ
 
-![image]([[https://encrypted-tbn0](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRK1OOTsErup2w-2LiB2Wgea78lB0VeOfAzf8zpKGLsng&s).
+![image]([](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRK1OOTsErup2w-2LiB2Wgea78lB0VeOfAzf8zpKGLsng&s)
 
 𓏲ㅤㅤ۫ㅤㅤ ♡ ㅤ۫[patreon](https://www.patreon.com/c/0_0zz/about).ㅤ ㅤ𓈒 Discord: rrxierxd .  এㅤ ㅤ۫ㅤ  
 
